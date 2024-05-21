@@ -4,5 +4,4 @@ Meu nome é Natalin kelly
 Estou estudando na Alura
 Estou me desenvolvendo na linguagem JavaScript
 Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
- ![](jujutsu-kaisen-tudo-sobre-sukuna-o-poderoso-personagem-do-anime,b2b0ce8f3da6e72630f753137d99b85eycahsfc2
- )
+ ![](https://p2.trrsf.com/image/fget/cf/774/0/images.terra.com/2023/11/24/1364524908-23141325182619.jpg)
